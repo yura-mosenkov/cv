@@ -1,1 +1,1 @@
-https://yura-mosenkov.github.io/rsschool-cv/
+https://yura-mosenkov.github.io/cv/
